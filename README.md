@@ -6,3 +6,7 @@ Ha! Found the edit button...
 Hey Brain, what are we going to do tonight?
 
 Same thing we do every night, Pinky... try to take over the world!
+
+Are you pondering what I am pondering?
+
+1) Brain buys every property in the world above its 39th floor...
